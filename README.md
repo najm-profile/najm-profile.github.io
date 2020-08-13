@@ -1,2 +1,0 @@
-# najm-profile.github.io
- 
